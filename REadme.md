@@ -1,2 +1,2 @@
 ## god killer ultra vegito
-## KAZUYA MISHIMA
+## KAZUYA MISHIMA the goat of sector 2
